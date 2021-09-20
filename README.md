@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Data Science**
 
-- 👯 I’m looking to collaborate on **on exciting projects that bring biology together with the best data technology 🖥️🐟**
+- 👯 I’m looking to collaborate on **exciting projects that bring biology together with the best data technology 🖥️🐟**
 
 - 👨‍💻 All of my projects are available at [https://github.com/anaiscasilva?tab=repositories](https://github.com/anaiscasilva?tab=repositories)
 
