@@ -7,11 +7,11 @@
 
 - 👯 I’m looking to collaborate on **exciting projects that bring biology together with the best data technology 🖥️🐟**
 
-- 👨‍💻 All of my projects are available at [https://github.com/anaiscasilva?tab=repositories](https://github.com/anaiscasilva?tab=repositories)
+- 👨‍💻 All of my projects are available at [repositories](https://github.com/anaiscasilva?tab=repositories)
 
 - 📫 How to reach me **anaisacsilva@gmail.com**
 
-- 📄 Know about my experiences [experiences](https://www.canva.com/design/DAEqi4GKvmw/kv1GyZWjUrwsncB8RgEdHA/view?utm_content=DAEqi4GKvmw&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton)
+- 📄 Know about my [experiences](https://www.canva.com/design/DAEqi4GKvmw/kv1GyZWjUrwsncB8RgEdHA/view?utm_content=DAEqi4GKvmw&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
