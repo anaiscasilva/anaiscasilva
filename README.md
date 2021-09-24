@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **anaisacsilva@gmail.com**
 
-- 📄 Know about my [experiences](https://www.canva.com/design/DAEqi4GKvmw/kv1GyZWjUrwsncB8RgEdHA/view?utm_content=DAEqi4GKvmw&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
