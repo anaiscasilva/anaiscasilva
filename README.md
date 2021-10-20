@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [repositories](https://github.com/anaiscasilva?tab=repositories)
 
-- 📄 Know about my [experiences](https://www.canva.com/design/DAEqi4GKvmw/kv1GyZWjUrwsncB8RgEdHA/view?utm_content=DAEqi4GKvmw&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton)
+- 📄 Know about my [experiences](https://www.canva.com/design/DAEqi4GKvmw/kv1GyZWjUrwsncB8RgEdHA/view?utm_content=DAEqi4GKvmw&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton) and my [interests](https://amazing-cartoon-98b.notion.site/Ana-sa-Silva-Data-Science-d573ddf097ef4c4ab761d70a782720d6) 
 
 - 📫 How to reach me **anaisacsilva@gmail.com**
 
